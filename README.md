@@ -1,4 +1,4 @@
-![grrh](https://github.com/keIIic/keIIic/blob/main/2548232c468a0e1bb533b7da100f0ce6.gif) 
+![notmine](https://github.com/keIIic/keIIic/blob/main/96a4ac23dac129ea45655115911687d0%20(1).jpg) 
 
 [atabook](https://kellic.atabook.org/)
 
