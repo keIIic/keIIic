@@ -1,8 +1,13 @@
-![notmine](https://github.com/keIIic/keIIic/blob/main/1758989763474.jpg) 
+ ![afftdvinyl](https://github.com/keIIic/keIIic/blob/main/cf6fc2ab11e2becac86edf8aa5d8bfbd%20(1).jpg)  
+   
+ᅠᅠ  ᅠ ᅠ   <img src="https://komarev.com/ghpvc/?username=keIIic&style=flat-square&color=ff0819" alt=""/> 
 
-[atabook](https://kellic.atabook.org/)  
-       ᅠ ᅠ ᅠ ᅠ ᅠ     [cr](https://pin.it/5mSFhk5QF)
-ᅠ ᅠ ᅠᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ
+
+
+
+ 
+       ᅠ ᅠ ᅠ ᅠ ᅠ    
+ᅠ ᅠ ᅠᅠ ᅠ ᅠ ᅠ ᅠ ᅠ
 
 
 
@@ -11,5 +16,5 @@
 
 ᅠ
 ᅠ
-ᅠ ᅠ ᅠᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ[![spotify-github-ᅠ ᅠprofile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yzvdqxx5baqlmjupeqjzs3mr5a&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=a86340&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31yzvdqxx5baqlmjupeqjzs3mr5a&redirect=true)
+ᅠ ᅠ ᅠᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ 
 
