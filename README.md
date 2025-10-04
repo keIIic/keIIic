@@ -1,6 +1,6 @@
-![aw](https://github.com/keIIic/keIIic/blob/main/6274be23772586a8df92e6e712ebf41c.gif)
+![aw](https://github.com/keIIic/keIIic/blob/main/1a1577ddbc7073d52c8b965a6369c4ae.jpg)
    
-ᅠᅠ  ᅠᅠᅠ   : )ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠᅠ 
+ᅠᅠ  ᅠᅠᅠ  ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠᅠ 
 ᅠ ᅠ ᅠᅠ ᅠ ᅠ ᅠ ᅠ ᅠ
 
 
