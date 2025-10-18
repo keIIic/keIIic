@@ -1,4 +1,4 @@
-![quote](https://github.com/keIIic/keIIic/blob/main/b82c52a698195657ef65400237e10448.jpg)
+![quote](https://github.com/keIIic/keIIic/blob/main/%D0%91%D0%B5%D0%B7%20%D0%BD%D0%B0%D0%B7%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F873_20251018173744.png)
    
 ᅠᅠ  ᅠᅠᅠ  ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠᅠ 
 ᅠ ᅠ ᅠᅠ ᅠ ᅠ ᅠ ᅠ ᅠ
